@@ -1,1 +1,1 @@
-# tanggallahir
+![gambar](ss098)
